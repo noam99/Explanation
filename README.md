@@ -1,2 +1,2 @@
-# Explanation
-Almost all my projects are private, in particular the more complex ones
+# Explanation/Information
+Many more projects are private, please contact me for further queries.
